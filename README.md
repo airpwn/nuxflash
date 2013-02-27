@@ -1,3 +1,3 @@
 NuxFlash Blog Script 
 
-Visit http://nuxflash.blogspot.com
+Dont Forget Visit http://nuxflash.blogspot.com
